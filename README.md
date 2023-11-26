@@ -11,7 +11,7 @@
   1. Violet Evergarden
   2. Steins;Gate/Steins;Gate 0
   3. Attack on Titan
-## *Anime Movies
+## *Anime Movies*
   1. A Silent voice
   2. I Want to eat your pancreas
   3. 5 Centimeters per second
